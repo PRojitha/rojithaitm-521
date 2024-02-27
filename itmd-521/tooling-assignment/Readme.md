@@ -180,6 +180,11 @@ This Git tutorial is a good refresher for those who need it and a great introduc
 ## Your Name
 
 P. Rojitha
+![WhatsApp Image 2024-02-28 at 01 03 09 (1)](https://github.com/PRojitha/rojithaitm-521/assets/156778308/11c52f38-e681-4e4b-af4c-f325ffd6a7a6)
+
+## Your Interests
+
+I like to play video games and reading books on my free time
 
 ## Where are you from
 
